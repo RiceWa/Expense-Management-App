@@ -1,3 +1,3 @@
-![Main Page](https://imgur.com/36cHcM3)
+![Main Page](https://imgur.com/a/9OPJmRF)
 
-![Add Entry Page](https://imgur.com/2YwvCXR)
+![Add Entry Page](https://imgur.com/a/k4SYoI9)
